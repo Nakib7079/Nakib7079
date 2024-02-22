@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Nakib7079
+- 👀 I’m interested in sports and coding!
+- 🌱 I’m currently learning IoT and Robotics
+- 💞️ I’m looking to collaborate on nothing... 💩
+- 📫 My address: 64/C-1, R.K.M Road, Gopibag, Dhaka-1203
+- 😄 Pronouns: He, Hes
+- ⚡ Fun fact: I am the fastest kid in the school. I'm not lying
